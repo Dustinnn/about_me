@@ -1,3 +1,4 @@
 # Dustin Meloche
 This is a page about me. 
-![GitHub Logo](http://i.telegraph.co.uk/multimedia/archive/02701/kim_2701423b.jpg)
+My name is Dustin Meloche I am 20 years old, I love cars and graphic design. I started doing graphic design and messing around with Photoshop and other various programs at the age of 13, I loved every minute of it and eventually turned a hobby into a career (hopefully). At the age of 17 I got my first car which is a 2006 Chrysler 300, ever since then I’ve been hooked on cars not only fixing my own car but modding it and styling it, anything from new wheels all the way to the engine and finding new ways to make more horsepower with my car. I don’t know everything about cars but I love learning and experimenting with new things as well as trying things out on my own and learning a long the way, the same goes for graphic design, every time I create a new design I look for ways to improve the next design.
+![GitHub Logo](https://scontent-yyz1-1.xx.fbcdn.net/v/t1.0-9/14322546_1414795865201734_4830412194193954419_n.jpg?oh=415afa7c8ec81e0dc26a3bba46eb6c0a&oe=5A146B9B)
